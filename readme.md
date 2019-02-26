@@ -1,2 +1,2 @@
 This website is only for practice purposes.
-Freelancer mobile tester. Interested in oneplus.
+I'm a mobile device tester working for a [Mexican company](http://www.motslatam.com/). Interested in [Oneplus](https://www.oneplus.com/).
